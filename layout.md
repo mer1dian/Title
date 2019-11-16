@@ -2,9 +2,3 @@ untitled.html
 qp11qbb01og.html
 31r4g9rln4.md
 sncipjhgs18.html
-2o1fg46p0go.html
-ie9oj5vjij.html
-d1q0uqouvv.html
-q2h4tealjeg.html
-dh2lpc9ngj8.html
-kjgalqebiio.html
