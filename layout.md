@@ -5,12 +5,3 @@ qmffe8vh4e.html
 e7krv535hv.html
 31r4g9rln4.md
 sncipjhgs18.html
-g1pqfhctpf.html
-l2nafn0jfig.html
-0jkoom396.html
-ej2jsvkv51g.html
-if8fjqrfh7g.html
-flbknu2bgmo.html
-2r7dtshamoo.html
-f7d55upgtug.html
-khkustcvch8.html
